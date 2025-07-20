@@ -6,7 +6,7 @@ ni alto ni bajo,
 ni gordo ni flaco,
 Eso sí, de carácter alegre,
 A menudo contento.
-Brillaba su peli negro.
+Brillaba su pelo negro.
 
 Negro y peludo 
 era también 

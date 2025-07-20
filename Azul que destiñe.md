@@ -12,4 +12,4 @@ Cementoso vestido con alas derretidas
 Se ciñe oprimiendo anhelos de antaño.
 
 Ahí sigues, esperando
-Ahí  sigues, esperando.
+Ahí sigues, esperando.

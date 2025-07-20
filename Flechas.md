@@ -7,7 +7,7 @@ Y las manos en los bolsillos,
 Dando saltitos mientras caminas,
 Contándome tus alegrías.
 
-Hoy  con sesenta sigues igual.
+Hoy con sesenta sigues igual.
 Tus alegrías siguen siendo
 Flechas envenenadas
 Directas a mi corazón.
