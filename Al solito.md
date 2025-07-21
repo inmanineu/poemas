@@ -1,5 +1,5 @@
 ---
-fecha: 2024/03
+fecha: 2024-03
 ---
 Aquí estoy bien,
 al sol, al solito

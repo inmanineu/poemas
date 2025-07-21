@@ -1,5 +1,5 @@
 ---
-fecha: 2024/03
+fecha: 2024-03
 ---
 Veo entronque tribales, escasos de poliester
 asentados y ajustados en milenaria cadena

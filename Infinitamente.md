@@ -1,5 +1,5 @@
 ---
-fecha: 2024/03
+fecha: 2024-03
 ---
 Tú lo sabes, 
 coexisten tiempos y espacios

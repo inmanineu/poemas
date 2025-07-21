@@ -1,5 +1,5 @@
 ---
-fecha: 2024/03
+fecha: 2024-03
 ---
 Dónde van a parar
 Tus emociones, tus sonrisas, tus cenizas
