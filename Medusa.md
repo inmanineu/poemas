@@ -21,3 +21,8 @@ En el templo húmedo
 De mi océano libre.
 
 Me siento medusa.
+En el templo húmedo
+De mi océano libre.
+
+No digo nada
+No hago ruido.

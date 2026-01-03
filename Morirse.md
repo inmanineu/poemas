@@ -12,7 +12,8 @@ Morirse es continuar
 Es  permitir
 Es  dar nuevas vidas.
 
-Morirse es romper estereotipos y monotonías.
+Morirse es romper estereotipos 
+y monotonías.
 
 Es renovar
 es limpiar
