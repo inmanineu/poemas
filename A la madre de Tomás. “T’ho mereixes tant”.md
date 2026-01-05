@@ -1,5 +1,5 @@
 ---
-fecha:
+fecha: 2025-09
 ---
 
 
@@ -26,4 +26,4 @@ Felicitats!
 
 Felicitats !!!
 
-T' Ho mereixes tant !
+T'ho mereixes tant !

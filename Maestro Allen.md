@@ -24,10 +24,6 @@ Como nuestro cotidiano
 Voy y vengo
 Vengo y voy
 
-Donde digo digo, digo Diego 
-
-Y que me quiten lo bailao !
-
 Cambiante
 Autocontradiciente
 

@@ -1,5 +1,5 @@
 ---
-2025-09:
+fecha: 2025-09
 ---
 
 
@@ -12,7 +12,7 @@ Arroyo
 agua viviente.
 
 Recorrido  vivido
-con Acompañadas luces
+con acompañadas luces
 Descubiertas sombras
 Compartido tiempo
 Construyente

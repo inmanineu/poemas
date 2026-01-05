@@ -1,5 +1,5 @@
 ---
-2025-10:
+fecha: 2025-10
 ---
 Armonizantes notas
 Butacas de sangre
@@ -36,5 +36,5 @@ Escenarios con notas
 Portadores de ondas
 Cicatrizantes 
 
-Inspirada en la fotografía de Julio César Romero.
+_Inspirada en la fotografía de Julio César Romero._
 ![](media/Pasted%20image%2020251012101610.jpg)Julio
