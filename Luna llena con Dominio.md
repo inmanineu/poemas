@@ -1,5 +1,5 @@
 ---
-2025-09:
+fecha: 2025-09
 ---
 
 Aún teñida de rojo 

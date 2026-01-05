@@ -1,5 +1,5 @@
 ---
-2025-10:
+fecha: 2025-10
 ---
 “¿Qué es lo que me activas ?
 He de investigarlo,

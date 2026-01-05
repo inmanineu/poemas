@@ -1,5 +1,5 @@
 ---
-2025-10:
+fecha: 2025-10
 ---
 El Extitxu,
 sito en el número tres 

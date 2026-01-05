@@ -1,5 +1,5 @@
 ---
-2025-10:
+fecha: 2025-10
 ---
 Quien piensa que solo  elegidas personas son poetas, es que  aún no ha comprendido la esencia de la poesía.
 
