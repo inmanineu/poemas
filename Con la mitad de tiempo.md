@@ -1,5 +1,5 @@
 ---
-2025-10:
+fecha: 2025-10
 ---
 Emergente
 Con total entrega
