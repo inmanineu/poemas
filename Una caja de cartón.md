@@ -9,12 +9,10 @@ Una caja de cartón protege
 Ausente de culpa
 Ausente de malicia
 
-¿ Es inocente una caja de cartón ?
+¿Es inocente una caja de cartón?
 Una caja de cartón 
-Es inocente.
+Es inocente. 
 
-Así me lo dices
-Así me lo cuentas
 Hablan tus imágenes
 
 Estado interior puro
