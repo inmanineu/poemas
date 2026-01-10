@@ -43,6 +43,6 @@ Es así como muestras tu esencia
 A quien sabe mirarte.
 
 
-🎶🌟😘 inspirada en la Fotografía de Madrid( torres en el horizonte, a la derecha) de Ramiro Morales.
+🎶🌟😘 Fotografía de Madrid( torres en el horizonte, a la derecha) de Ramiro Morales.
 
 ![](media/Pasted%20image%2020251002103429.jpg)

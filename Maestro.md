@@ -1,7 +1,7 @@
 ---
 fecha: 2025-10
 ---
-Woody
+
 
 A velocidad relámpago 
 con verdad y humor
@@ -30,14 +30,9 @@ Autocontradiciente
 Ay ! 
 Quién soy ??
 
-Genial Woody
+Genial Maestro
 Ya te debía mucho
 … y desde hoy
 … desde hoy 
 … desde hoy 
 Ya ni sé !!
-Algo se viene..
-Y viene bueno
-
-Gracias  Woody
-Por ser.

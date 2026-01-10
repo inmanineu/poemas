@@ -29,10 +29,7 @@ Aún vivida,
 
 Luna llena
 Por gargantas
-Recorriente Dominio
+Recorrientes Dominio
 
-Vivida vida,
-
-Aún en vida,
-Amada mía.
+Vivida vida.
 

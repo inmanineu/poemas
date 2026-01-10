@@ -10,7 +10,7 @@ El eterno ciclo de la vida.
 
 Morirse es continuar 
 Es  permitir
-Es  dar nuevas vidas.
+Es  dar.
 
 Morirse es romper estereotipos 
 y monotonías.

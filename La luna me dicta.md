@@ -7,7 +7,7 @@ La luna me insta
 y me dicta verdades ocultas,
 Que me dice que te diga.
 La luna me desnuda con palabras 
-La luna me dicta :
+La luna me dicta 
 
 Contigo puedo hablar horas seguidas
 sobre el Universo, 

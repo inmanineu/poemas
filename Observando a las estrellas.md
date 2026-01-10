@@ -21,7 +21,7 @@ Observa,
 observa su espacio
 Su tiempo
 Su  “ me cierro “
-Su “ no quiero esto “
+Su “ esto no quiero “
 Su carcajada, su  baile 
 sus momentos de expansión.
 
@@ -35,11 +35,11 @@ intención
 Admiración, respeto,
 Sorpresas,
 
-Atreviéndonos a salir
+No te atreves a salir
 De la zona de confort
-Mostrando heridas
-Y duelos de un antaño cercano .
 
+Muestras heridas
+Y duelos de un antaño cercano.
 
 Si quieres que una Estrella te acaricie
 Y no te dé, sin querer, un golpe o un empujón 

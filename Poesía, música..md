@@ -4,10 +4,8 @@ fecha: 2025-10
 Quien piensa que solo  elegidas personas son poetas, es que  aún no ha comprendido la esencia de la poesía.
 
 Quien piensa que solo  elegidas personas son músicas, es que aún no ha comprendido el arte de las musas.
-
-Quien piensa que solo elegidas personas  son chef , es que aún no ha comprendido la esencia de la gastronomía 
-
-Alimento, alimento, alimento.
+ 
+Alimento, alimento.
 
 Alimento para el espíritu
 Para la mente, 
@@ -38,7 +36,7 @@ Permitámonos mientras crecemos
 que nos impregne la latente sabiduría 
 escuchemos las voces de quienes 
 antes que nosotros  
-ya recorrieron caminos,
+ya recorrieron
 
 Caminos tortuosos o llanos
 Solitarios o multitudinarios
@@ -53,33 +51,26 @@ Búsqueda de alimento
 En infinitos tiempos
 Búsqueda de lo humano
 
-¿ Y el vino ?
--Te preguntarás habiendo leído el título -
-
-El vino, omitido por evidencia,
-Te acompaña desde milenios
+Omitido,
+Hay  quien te acompaña 
+desde milenios
 Desde  Georgia en el Cáucaso 
 a Mesopotamia
 por  Egipto, Grecia y Roma…
-
-Sí ! 
- ¡ La viticultura es cultura !
-Cultura que te acompaña 
+ 
+Cultura en presencias
 Escuchemos las voces
 De quienes antes que nosotros
 Ya brindaron ya supieron
-
- ¡  Y quizá tú sin saberlo !
  
 Desde infinitos  tiempos
 Búsqueda de lo humano
 Permitámonos crecimiento.
 Poesía, música, 
-Arte en todas sus facetas
 
-¿ Y el vino ?
+Arte en todas sus facetas.
 
-¡  El vino para  brindar por ello !
+
 
 
 

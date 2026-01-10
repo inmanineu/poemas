@@ -21,7 +21,6 @@ Entre trazos vespertinos
 Te muestras
 Mantis marrón o verde.
 Tus quereres no son los míos
-Mis quereres son otros.
 
 Necrópoliis resucitantes
 presentes ayeres.
@@ -64,6 +63,6 @@ Presentes ayeres
 Aquí, lo sé
 Aquí ya he vivido
 
-Un lugar privilegiado para vivir
+Un lugar privilegiado para permanecer
 Eternamente 
 

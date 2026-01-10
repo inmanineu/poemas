@@ -13,6 +13,6 @@ Me rodeas, me traspasas,
 jugueteas,
 me susurras y me alimentas.
 
-Siete, elegiste el siete
+Siete, Ana, elegiste el siete
 para permanecer 
 eternamente.
