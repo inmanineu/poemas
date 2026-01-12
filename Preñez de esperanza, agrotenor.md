@@ -19,7 +19,7 @@ Y tus ojos que lo ven.
 
 
 
- *Fotografía que me inspira, del “agrotenor “ Jose Manuel Montero Valdeolivas 
+ *Fotografía del “agrotenor “ Jose Manuel Montero Valdeolivas 
 
 
 ![](media/IMG_8807%201.jpeg)

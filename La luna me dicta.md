@@ -4,7 +4,7 @@ fecha: 2025-01
 Me has invocado,
 
 La luna me insta 
-y me dicta verdades ocultas,
+me dicta verdades ocultas,
 Que me dice que te diga.
 La luna me desnuda con palabras 
 La luna me dicta 

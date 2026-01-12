@@ -13,10 +13,10 @@ Tal cual te lo digo
 Por ser verdad, 
 Ya es .
 
- Y Lo bello ….¿ es bello?
-¿ Por qué ?
+ Y Lo bello ….¿es bello?
+¿Por qué ?
 
-Pues es bello …
+Es bello …
 Porque es !!!
 Si ???
 
@@ -31,8 +31,10 @@ Ciertamente verdadero.
 Sin verdad no hay belleza ?
 No, no hay
 
-Si hay, es porque es.
-Si es, es que es verdad.
+Si hay, 
+es porque es.
+Si es,
+es que es verdad.
 
 Lo que es, 
 es por ser bello, 

@@ -35,11 +35,11 @@ intención
 Admiración, respeto,
 Sorpresas,
 
-No te atreves a salir
-De la zona de confort
+(No te atreves a salir
+De la zona de confort)
 
-Muestras heridas
-Y duelos de un antaño cercano.
+(Muestras heridas
+Y duelos de un antaño cercano).
 
 Si quieres que una Estrella te acaricie
 Y no te dé, sin querer, un golpe o un empujón 

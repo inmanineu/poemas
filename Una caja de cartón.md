@@ -61,7 +61,7 @@ Posa la caja de cartón
 En papel
 Exquisito papel
 El de Benedikt
-Exquisito tú, como él
+Exquisito tú, como él,
 Amante de calidad
 En manifestaciones artísticas no reconocidas.
 
@@ -71,8 +71,7 @@ Que invitó a ser coleccionista
 De ése no reconocido arte, 
 El arte del saber ver.
 
-Saber ver 
-Es un arte
+Saber ver, 
 Somos artistas.
 
 ¿ Es inocente una caja de cartón ?

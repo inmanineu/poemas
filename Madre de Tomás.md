@@ -16,7 +16,7 @@ Por tu eterna belleza
 Por tu comprensión infinita
 
 Madre de Tomás,
-Eres ... sigues siendo 
-En nuestros corazones 
-Eres luz
+Eres ... 
+sigues siendo 
+Luz
 

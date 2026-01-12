@@ -12,7 +12,7 @@ Los miércoles miércoles
 Los jueves jueves
 Los viernes viernes
 Los sábados sábados
-Los domingos domingos
+Los domingos piripitingos
 
 Un hombre de reloj
 De esto lo pongo aquí 
