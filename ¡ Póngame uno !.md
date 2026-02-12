@@ -47,7 +47,7 @@ En ése caso…
 Con tal triplete
 Se lo compro !
 
-¡ Póngame uno de TODO  !
+¡ Póngame uno de TODO !
 
 ….
 Aristotélica!!! 
