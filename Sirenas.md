@@ -8,4 +8,3 @@ Orillas en las que reposar.
 
 Sirenas.
 
-Tras la quimioterapia 
